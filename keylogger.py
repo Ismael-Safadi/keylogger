@@ -1,1 +1,1 @@
-the keylogger under developmant ^__^
+the keylogger under development ^__^
